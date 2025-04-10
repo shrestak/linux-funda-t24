@@ -1,0 +1,1 @@
+# linux-funda-t24
